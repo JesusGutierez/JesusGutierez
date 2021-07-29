@@ -5,9 +5,9 @@
   - E-mail: jgutierrezyancan@outlook.com
   - Linkedin: www.linkedin.com/in/gutierrezyancan
 
-Personal info:
+🙋‍♂️ Personal information:
 
-- I'm 19 years old
+- I am 19 years old
 - I am from Perú 
-- I study Software Engineering in SENATI
+- I study Software Engineering in SENATI 
 - I am in fifth semester of the carrer
